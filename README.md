@@ -1,2 +1,0 @@
-# Serverlist.ULTIMATE
- 
